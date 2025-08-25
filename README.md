@@ -1,4 +1,4 @@
-# Hi there, I'm sea116! 👋
+# Hi there, I'm sea! 👋
 
 > 代码不仅是工作，更是创造小世界的魔法 ✨
 
