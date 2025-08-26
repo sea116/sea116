@@ -17,13 +17,13 @@
 - 简单网站部署与创意实践
 
 **个人博客：**  
-🌐 [riji.sealife.top](https://riji.sealife.top/)
+🌐 [world.sealife.earth](https://riji.sealife.top/)
 
 **个人导航：**  
-🌐 [homepa.484948.xyz/](https://homepa.484948.xyz/)
+🌐 [world.sea****.earth/](https://homepa.484948.xyz/)
 
 **个人导航：**  
-🌐 [daohang.484948.xyz/](https://daohang.484948.xyz/)
+🌐 [world.***life.earth/](https://daohang.484948.xyz/)
 
 ---
 
