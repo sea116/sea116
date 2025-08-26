@@ -19,6 +19,12 @@
 **个人博客：**  
 🌐 [riji.sealife.top](https://riji.sealife.top/)
 
+**个人导航：**  
+🌐 [homepa.484948.xyz/](https://homepa.484948.xyz/)
+
+**个人导航：**  
+🌐 [daohang.484948.xyz/](https://daohang.484948.xyz/)
+
 ---
 
 > 技术不设限，热爱无边界。  
